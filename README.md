@@ -1,4 +1,4 @@
-Hi!~ My name is Valeria Dolgaliova
+Hi!~ My name is Valeria <3
 ==========================================================================================================================================
 
 SOEN Student :video_game::movie_camera::stars:
