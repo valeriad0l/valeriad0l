@@ -1,7 +1,7 @@
-Hi!~ My name is Valeria <3
+Hi!~ My name is Valeria ⋆౨ৎ˚⟡˖
 ==========================================================================================================================================
 
-SOEN Student @ Concordia :video_game::movie_camera::stars:
+SOEN Student @ Concordia Uni ࣪
 ------------
 
 * 🌍  I'm based in Montreal, Qc
